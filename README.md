@@ -1,2 +1,3 @@
-# rem-cua-phong-tam
+# Chọn chất liệu như thế nào để may rèm?
 Chọn chất liệu như thế nào để may rèm? Với cửa sổ phòng tắm, bạn nên chọn những chất liệu rèm dầy, có sự che chắn kín đáo. Những chất liệu dày cũng sẽ giúp bạn cảm thấy ấm áp hơn trong mùa đông. Ngăn chặn những cơn gió lạnh từ ngoài vào, giữ nhiệt cho phòng tắm.  Nếu bạn chọn loại vải dày thông thường không có khả năng chống nước. Thì bạn cần một lớp rèm lót phía trước để chống bắn nước vào rèm cửa. Lớp rèm lót này sẽ giữ cho màn phòng tắm luôn sạch và khô. Đồng thời nó có thể giúp bạn điều chỉnh ánh sáng dễ dàng hơn. Và ngăn chặn những tình huống nhạy cảm có thể xảy ra. Rèm phòng tắm cần giữ được nét thẩm mỹ cho phòng tắm.
+https://noithatleo.com/goc-chia-se/rem-cua-phong-tam/
